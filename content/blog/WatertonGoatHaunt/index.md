@@ -3,16 +3,17 @@ title: Waterton to Goat Haunt
 date: "2019-08-16T22:12:03.284Z"
 description: "With 4 international border crossings..."
 ---
-
+##The Plan:
+International trip.  Start in Waterton Park in Canada, sail across Waterton Lake to Goat Haunt in Glacier National Park, and do some hiking around!
 
 ##Waterton/Goat Haunt backcountry sail trip report
 
-###Friday
+###Friday: Getting to Waterton Town
 
 
 
 *   Get out of work at 11 or so.  Boat is already loaded on car, just have to put other gear in.
-*   Only one door opens due to strapping boat on car.
+*   Only one door opens due to strapping boat on car.  Note to self: find a better way to to this next time...
 *   Mad scramble, yoga people showing up at house, in-laws drop by, I’ve got to get on the road!
 *   Reserve St traffic is abmismal, it’s backed up almost to 3rd.
 *   Finally make it out.  Stop at freeway to tighten up boat straps, etc.
@@ -34,6 +35,9 @@ description: "With 4 international border crossings..."
 *   Watch the bear video.  “If a bear starts to eat you, fight back in anyway possible.”  Check.
 *   Head out, up the GTTS road.  It starts raining around Avalanche.
 *   Stop at the loop to pull the boat plug so that there isn’t a large pressure differential in the boat.  I’m not sure if this matters though.
+
+	![GTTS](GTTS_boat.jpg)
+
 *   Up and over Logan pass.  Super foggy at the top, and going down the east side.  Rain is off and on.
 *   St Mary’s lake is nice, note to see about BC sailing on it maybe next year.
 *   Heading north, turn off to Waterton lakes.  Cows all over road.  
@@ -46,7 +50,7 @@ description: "With 4 international border crossings..."
 *   Thirsty Bear Restaurant and bar. band starting.  Bass player only has 3 strings, asking if anybody has an extra…  band is not half bad.  
 *   Drink some beers, rain is off and on.  Go back to tent and sleep.
 
-###Saturday
+###Saturday:  And I'm off!
 
 
 
@@ -55,34 +59,53 @@ description: "With 4 international border crossings..."
 *   Head back to camp.  Pack up gear from car into Dry bags for the trip.  2 bags…  Rig up sailboat.
 *   Tent is still a bit wet, but pack it anyway. 
 *   Dolly the boat and gear down to the water.  Move car over to the parking lot instead of at a site.
+	
+	![boatLaunch](boatLaunch.jpg)
+
 *   11am. Launch boat. Return dolly to car.  Strong wind coming onto shore.  Hard to get the boat pointed and launched.  It turns over twice because it catches the wind a bit.  Finally get going, and we’re off!
 *   Wind is pretty heavy, and directly a head wind.  So lots of tacking.  Sailing is smooth and fast.  Some canoers and kayakers along the shore, but the lake is mainly to myself.
+![waterton](sailing.jpg)
 *   Couple of tour boats out, and a motor boat.  Making good time.  
 *   Pass the border, large swath carved out.
 *   About ⅔ of the way down the lake, the wind abates. Time is 12:30.
+![slowDown](noWake.jpg)
 *   Turns into a small tail wind.  Do sime minor paddling to head toward the riffles.
 *   Wind is about out.  Some shifting breezes from some side canyons.
 *   Some more paddling, and getting close to goat haunt.
 *   See some trees to the left of the dock, aim for that, beach the boat.  Time is 2pm.
+![boat](boatGoat.jpg)
 *   Repack gear into backpack, divvy up stuff to stay at boat like some dry bags, and PFD.
 *   Put note on boat with BC permit #.
+
+![boatLaunch](boatGoatpacked.jpg)
+
 *   Place is abandoned, slight creepy feeling.  
 *   Call border and custons, they say to download the app.
+
+![Welcome](WelcometoUS.png)
+
 *   Proceed to get admitted to the US via app.  Pretty funny.
 *   Time is about 3pm when I get on the trail.  Lake Frances is 6.5 miles or so with about 1500 feet of elevation gain.
+![GoatBridge](goatBridge.jpg)
 *   Uphill until Lake Janet, then flatter.  Lots of thimble berries.  Huckleberries too.
+
+![Janet](lakeJanet.jpg)
+
 *   Met 2 groups of people going the other way.  Both were up high last night in all the rain/hail.  They didn’t have fun.
 *   Filter water at Janet lake.  Bear prints in the mud.
+![Bear](bearPrint.jpg)
 *   Keep going to Frances lake.  Start to bonk.  Only thing that I have eaten since breakfast is thimble berries and huckleberries.
 *   Close though, so I just push on through.  
 *   Make it to camp. 5:30-5:45 or so.  Set up tent, cook up a mountain house, and go eat it by the lake.  
+![Citiidel](citidelPeaks.jpg)
 *   Brilliant scenery.
+![Francis](FrancisWaterfall.jpg)
 *   Other camper gets in.
 *   I hike up to check out Thunderbird falls, I don’t go all the way up to brown pass though.  No sense in doing the switchbacks for the hell of it.
 *   Get back to camp, do some chatting for a while, Head to bed at 9:30 or so.
 *   Sleep well.  Some trepidation about boat, and if it is tied down well enough.  Wind gusts here… can’t tell if it is constant wind or the waterfall I am hearing mainly though.
 
-###Sunday
+###Sunday: Return to Goat Haunt
 
 
 
@@ -91,10 +114,14 @@ description: "With 4 international border crossings..."
 *   Cruiser downhill hike to Waterton River.  Get there by 1pm.  Set up camp.
 *   Head to Goat Haunt to check on boat, get camel back for day hike stuff.
 *   Boat looks good, decide to go out for a sail.
+![Dock](GoatDock.jpg)
+
 *   Winds are heavy!!!  Flying downwind, a bit scary.  Gusts hit, and almost level the boat.
 *   Turn it around and try to make my way back.  Super gusty.  About capsizing when the gusts hit, and  falling off boat when gusts stop.  Not fun.  Windy app says 41knot gusts, fna.
+![Gusty](WindyGusts.png)
 *   Back to shore, check out the abandoned station.  Water issues.  Follow 8 inch hose from lake up to a barn/pasture with 2 horses and 2 mules.
 *   Decide to go check out some waterfalls.  Rainbow falls.  Alright.
+![GoatRiver](GoatRiver.jpg)
 *   Other falls on Olsen creek have a trail going to them on an old map, but it is no longer there.  Bushwack to find it.  Quite thick.  Falls are cool, a bit narrow, looks like you could jump across them.  I don’t.
 *   Head back to camp.  Another hiker is there.  From Poland, living in Hawaii, but working in MT/Idaho for the BLM for the summer.  Hiking out to Waterton in the morning.
 *   Another group arrives.  Decides to ford the river instead of hiking the mile around as they are pretty tired.  Group of 3 software engineers out of the Bay and LA.  Michael, Wendy, and So-So?  Nice folk.  Heading out to waterton in the morning to catch a shuttle back to Chief Mountain.
@@ -103,7 +130,7 @@ description: "With 4 international border crossings..."
 *   Fire is nice, keeps the mosquitos away a bit… not much though.
 *   Head off to bed.
 
-###Monday
+###Monday Crypt Lake and Waterton Township
 
 
 
@@ -113,20 +140,30 @@ description: "With 4 international border crossings..."
 *   I’ve never sailed so fast downwind (other than maybe yesterday).  
 *   Wind gusts coming in from slightly different direction than main wind.
 *   Straight line down the lake.  It takes less than an hour to get to Crypt lake trailhead.
+![CryptBoat](CryptBoat.jpg)
 *   Park the boat and convert to day hike mode.  Filter water, get boots on, etc.
 *   Chat with a couple of dudes who paddled a canoe over from waterton.
 *   Hike up to the lake.  Start seeing some return hikers from the tour boat.
+![CryptTrail](cryptView.jpg)
 *   Run into more hikers on the switchbacks.  I don’t mind the break too much…
+![CryptTrail](cryptViewPano.jpg)
 *   Ladder, tunnel, and wire rope all have people coming down on them.  We take turns up and down.  It seems to work.  Glad I’m not with the tour group.
+![CryptTrail](CryptWire.jpg)
 *   Get to the lake.  2 people leaving tell me they are the last tour boat people up there.
+![CryptTunnel](CryptTunnelTrail.jpg)
 *   Go hang out with the canoe folks.  Get some food, filter water.  Take a dip.
+![CryptLake](CryptLake.jpg)
 *   Head back down the trail head.
+![CryptCave](CryptCaveInside.jpg)
 *   Hells roaring canyon.  Steeper, but pretty cool looking.  Nice river, I need to go back and explore that.  Water over solid rock.  Deep pools.
+![HellRoaring](HellRoaring.jpg)
 *   Get back to the boat.  Lots of tourists waiting around to get picked up.
 *   Get the boat loaded and rigged.  Set sail just as the tourist boat is coming in.
 *   Quick sail back over to Waterton beach.  Wind coming onto beach.  Can’t slow down enough even with the sail all the way in.  Do a 180 near the shore to get in irons, and hope to get pushed into the beach.  Works kind of…
 *   Beach the boat, drop the sail, and go to find the car.
+![Waterton](WatertonReturned.jpg)
 *   I can’t find my car key.  I look everywhere.  Just about to unpack the tent and check in the pockets, but I spy it at the bottom of my dry bag, all alone.  Must have fell out of an unzipped pocket in my backpack.  That would have been a disaster if I lost it.
+![Waterton](WatertonReturned2.jpg)
 *   Assemble dolly for boat.  Go to bring up boat.  Dolly breaks.  I guess the screws are important.
 *   A couple of helpful Canadians take a break from their picnic and help me carry the boat up to car and load it up.
 *   Get loaded up, ready to head out.  Border closes at 10.  It is like 7:30.  Grab some food at Weiners of Waterton.  Chat with some people from the tour boat that I chatted with earlier on the trail.

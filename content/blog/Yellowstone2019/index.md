@@ -172,8 +172,15 @@ Fishing permit is 18$ for 3 days.  Might be worth having one, fishing should be 
 *   Get accused of stealing wood from neighboring site.  Apparently the guy left 2 boxes of wood and nothing else at his site.  I assume someone thought it was abandoned.  Guy was a bit of a tool.  “That’s an excuse that thieves would use,”  oh jeez.
 *   Some mosquitos.  Try to start my mosquito burner thing.  Doesn’t work. :(
 *   Head up to store to get non lead sinkers, and barbless hooks.  Got ice cream too.
+![WestThumbLancedMarkTed](LanceMarkAndTed.jpg)
+
+![WestThumbLanceEmberAndMark](LanceEmberAndMark.jpg)
 *   Drive to West Thumb to check out the pools there.
+![WestThumbPool1](WestThumbAbyssPool.jpg)
+
+![WestThumbPool1](WestThumbBlackPool.jpg)
 *   Drive back to Grant Village.  Eat dinner. Jiffy pop as well.   
+
 *   ‘Phantom Explorer’  talk is going on at 9pm at the amphitheater.  Ember wants to see it.
 *   Walk along the lake towards the amphitheater. Cool ‘barrier island’ type sand bars.
 *   Get to amphitheater a couple minutes after the program started.  Ranger is a good storyteller.
@@ -200,9 +207,12 @@ Fishing permit is 18$ for 3 days.  Might be worth having one, fishing should be 
 *   Sharp 90 degree left turn in the river. Quite narrow.  Large rocks on the right,  Looks like a good jumping spot.
 *   River widens out again.  Cat up ahead.  Mark jumps out and starts pulling.  Big, sandy, and shallow on river right.  I sail past.  Dagger boards are up on the Cat.
 *   River is getting quite shallow.  Beach the Zuma on a sandbar to wait for the catamaran.
+![LewisChannel](LewisChannelCat.jpg)
 *   Attempt to start to sail again, but the current is matching the wind.  I go nowhere.  Time to pull.  There looks to be about 1 to 1.5 miles of river left.
+![LewisChannel](LewisChannelZuma.jpg)
 *   Pulling is easy where it is shallow, but when it is deep, it is a slog.
 *   I can pull while on the shoreline somewhat, as long as there are no trees for the mast to hit.
+![LewisChannel](LewisChannel.jpg)
 *   Pass the cat, they have more weight to pull. It’s a bit rocky now.  I tie up and go back to help with the cat.
 *   Only Lance is with the cat now.  Mark and Ember headed to the trail.  It was too shallow for Ember to ride on the boat.
 *   Pull with Lance through these parts.  We didn’t have to unload any gear, fortunately.  I suggested taking down the mainsail because it didn’t seem to be helping.
@@ -216,8 +226,11 @@ Fishing permit is 18$ for 3 days.  Might be worth having one, fishing should be 
 *   Cat seems to have a bit of a hard time getting going.   Tacking was hard with all the weight in the boat.
 *   Spotted the point where the camp was located (8R2).  As I got nearer, I could see the marker that denoted where to land the boats.  It synced up well with the map on the GPS.
 *   Wind is starting to die down for the evening, time to get to camp!
+![ShoshoneCat](ShoshoneCat1.jpg)
 *   Volcanic rocks at the waterline on the beach, pretty rough on the bottom of the boat.  I cleared out an area for the cat.  Time is 6:10pm.
+![ShoshoneCat](ShoshoneCatRidingLow.jpg)
 *   Landed the cat, they had a blast, but hard maneuvering with all the weight.  Waves would hit the dry bags up front and splash over the top.  Ember is cold.  Lots of water in the pontoons, I need to fix the port holes.  Also the tiller extension came loose from the cross bar, the nut worked itself loose from the bolt and was gone.  Spare bolt in the repair kit had different threads.  I just tied a loop of dyneema to reconnect it.
+![ShoshoneBluff](ShoshoneFromBluff.jpg)
 *   Unload, I help Ember out of her wetsuit, and into some dry clothes.  She warms up quick.
 *   Mosquitos.  Lots of them.  We are up on the bluff, but the wind has died, and they are tenacious.
 *   Set up tent, change clothes, and get some dinner.  Mountain house for the ease.  Ember has the Chili mac, and beef stroganoff for myself.  Ember really liked the beef stroganoff, but didn’t want to trade.  Stubborn.
@@ -226,6 +239,7 @@ Fishing permit is 18$ for 3 days.  Might be worth having one, fishing should be 
 *   Mark went for a swim, and for some fly fishing.
 *   Left the rain fly off of the tent to watch the stars.  
 *   Played a card game in the tent away from the mosquitos.  Love letter.  Cheesy backstory, but the game was pretty fun.  Ember had a blast.
+![Tent](TentLanceEmber.jpg)
 *   Emerged from the tent to check out the stars when it was dark.  Mosquitoes had gone to bed.  No light pollution at all!
 *   Wolves barking on both sides of the camp.  I’m a bit uneasy with it.
 *   Some flashing of lights in the sky.  Like lighting, but there are no clouds about.  No idea what that was.
@@ -255,12 +269,17 @@ Fishing permit is 18$ for 3 days.  Might be worth having one, fishing should be 
 *   Make it to shore.  Cat too.  A gentleman hikes up.  He was hiking down from Lone Star Geyser and wondering if there were anymore thermal things down in these parts.  We said yes, though we had not been to them yet.  He proceeded to take a break.
 *   Some bear boxes by the landing.  We were able to put some food in there that mark brought.
 *   Geyser basin is cool!  Literally no one is around.
+![Geyser1](Geyser1.jpg)
+
+![Geyser1](GeyserEmber.jpg)
 *   Past the Geyser basin, we hop in the creek to cool off.  A couple of Continental Divide hikers stop and chat for a few.  They are the only other people we see at the geyser basin.
+![Geyser1](GeyserLanceMark.jpg)
 *   We turn around and head back to the boats.
 *   The other guy is just finishing up lunch.  We get to chatting.  He is from France.  As we part, he says, “Is there a saying in English that means ‘good winds’ or travels, or something like that?”  After thinking for a bit, Lance says, “Yes.  it is Bon Voyage!”  We all laugh, load the boats, and bid him farewell.
 *   Sailing back is fast.  Downwind.  Clouds still building to the northeast.  Lance, Ember, and myself take the cat, Marks sails the Zuma.  Mark having fun spinning donuts.
 *   Back to camp.  People standing on Beach.  Wave.  We land, they have taken off.
 *   Less mosquitoes this evening, more wind.
+![Bluff2](ShoshoneBoatsBluff.jpg)
 *   Eat dinner.  Played some BS with cards.
 *   Rain.  Thought it was just pass quickly, but it poured for all evening.  Glad we put the tarp up, and rain fly on the tent.
 *   Water under the tent but we were dry inside.
@@ -273,6 +292,7 @@ Fishing permit is 18$ for 3 days.  Might be worth having one, fishing should be 
 *   Decided to get an early start in case Tstorms hit in the afternoon (20% chance when we left, but we were unable to get an updated weather report on the radio…).
 *   Wake up at 6:30.  Mark up 1st, I’m up 20 minutes later.
 *   Mark spies a big fish in the water from up on the bluff, grabs rod.  He scrambles down the bluff, and tries to catch it.  I act as spotter from the top of the bluff, telling him where to cast.  Multiple fish in the water.  Don’t seem to want Mark’s fly.
+![Fishing](MarkFishing2.jpg)
 *   I give it a go with the spinner.  No luck though.
 *   Lance is up.  We start to pack up things and put things in the sun to dry.
 *   Ember only gets up when told that we weren’t going to have enough time for old Faithful if we were late.
@@ -282,6 +302,7 @@ Fishing permit is 18$ for 3 days.  Might be worth having one, fishing should be 
 *   Some canoers by the shore, we yell and wave.
 *   Wind dies a little while later.  Morning winds and afternoon ones are canceling each other out…  we paddle a bit.
 *   We round the corner and make it to the river’s mouth.  Get a bit of lunch.
+![LewisChannel](LewisChannelWayHome.jpg)
 *   Wind on the lake is starting to pick up.  I’m not sure if we made much time leaving early.
 *   Drop the sails and float the boats down stream.
 *   Much easier going with the current than going against it.
@@ -302,6 +323,7 @@ Fishing permit is 18$ for 3 days.  Might be worth having one, fishing should be 
 *   We say goodbye to Mark, he heads towards Miles City.  We head north and west to Old Faithful.
 *   Catamaran mast has slipped back, and we lost our styrofoam.  We tie a couple more rachet straps on it, and pad it with the garbage dry bag (which is still there, I need to empty it).
 *   Double scoops of ice cream for me and Ember.  Ember gets chocolate and chocolate.  I love that kid.  Lance gets a single scoop.
+![OldFaithful](OldFaithfulTedEmberLance.jpg)
 *   We wander a bit, we have a little time before old Faithful goes off.  We can’t go in the visitor’s center with ice cream, so we walk along a trail circling the geyser.
 *   We sit and wait the last couple minutes for old faithful.  Estimate was for 7:05, but there was a 15 minutes window on each side.
 *   Small eruption at 7:00.  Was that it?  Ember is impatient and thinks that is it and wants to go.  Everybody else is waiting, so we do as well.

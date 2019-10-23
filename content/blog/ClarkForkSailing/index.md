@@ -12,6 +12,8 @@ It was looking quite nice out in Missoula during mid April, with temperatures hi
 
 We were wrong, the gate was locked, and the lake was completely iced over save for the very edges.  We had an inkling that this would be the case because we passed Salmon Lake on the way, and were met with white sheets of ice and snow.  On the inlet side of Salmon Lake, there was some open water, and since we had come all that way, we decided to give it a shot.  Dodging ice sheets and freezing our asses on the boat, we made a couple circuits in the available open water.
 
+![placidLake](PlacidLance.jpg)
+
 So fool’s spring got me again.  Oh well.  I bided my time until the weather improved.
 After doing a five day float down the Smith River over Memorial Day, I was feeling pretty river savvy.  The last day of the trip involved a lot of paddling, and the head winds could really slow down the rafts.  Anyway, I got the brilliant idea to sail down the Clark Fork River.  I had never seen a sailboat on the river before, and therefore it would be some great pioneering work.
 

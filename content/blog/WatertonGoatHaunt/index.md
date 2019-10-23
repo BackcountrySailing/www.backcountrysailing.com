@@ -173,6 +173,6 @@ International trip.  Start in Waterton Park in Canada, sail across Waterton Lake
 *   Just take the south road.  Holy shit, there is construction there too.  Basically there is no road.  What a shit show.
 *   Horses on the road, wtf?
 *   Make it to east glacier, then head out on hwy 2.  Uneventful trip back to Missoula.  I get in around 2am.
-*   
+
 
 <!-- Docs to Markdown version 1.0β17 -->

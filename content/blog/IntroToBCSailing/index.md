@@ -23,6 +23,8 @@ One day, I saw a 13 foot Zuma for sale for 550$.  It ended up being about 1 mile
 
 Towards the end of the summer, I spotted a sweet looking catamaran in northeast Washington.  My mom was always telling us that when she used to go up to Flathead lake as a kid, they had some cousins with a cat; it was super fast and super fun.  I went, picked it up, and drove it back to Missoula.  
 
+![solCat](solCat1.jpg)
+
 ![solCat](SolCatVan1.jpg)
 
 ![solCat2](SolCatVan2.jpg)

@@ -226,11 +226,17 @@ Fishing permit is 18$ for 3 days.  Might be worth having one, fishing should be 
 *   Cat seems to have a bit of a hard time getting going.   Tacking was hard with all the weight in the boat.
 *   Spotted the point where the camp was located (8R2).  As I got nearer, I could see the marker that denoted where to land the boats.  It synced up well with the map on the GPS.
 *   Wind is starting to die down for the evening, time to get to camp!
+  
 ![ShoshoneCat](ShoshoneCat1.jpg)
+
 *   Volcanic rocks at the waterline on the beach, pretty rough on the bottom of the boat.  I cleared out an area for the cat.  Time is 6:10pm.
+   
 ![ShoshoneCat](ShoshoneCatRidingLow.jpg)
+
 *   Landed the cat, they had a blast, but hard maneuvering with all the weight.  Waves would hit the dry bags up front and splash over the top.  Ember is cold.  Lots of water in the pontoons, I need to fix the port holes.  Also the tiller extension came loose from the cross bar, the nut worked itself loose from the bolt and was gone.  Spare bolt in the repair kit had different threads.  I just tied a loop of dyneema to reconnect it.
+   
 ![ShoshoneBluff](ShoshoneFromBluff.jpg)
+
 *   Unload, I help Ember out of her wetsuit, and into some dry clothes.  She warms up quick.
 *   Mosquitos.  Lots of them.  We are up on the bluff, but the wind has died, and they are tenacious.
 *   Set up tent, change clothes, and get some dinner.  Mountain house for the ease.  Ember has the Chili mac, and beef stroganoff for myself.  Ember really liked the beef stroganoff, but didn’t want to trade.  Stubborn.
